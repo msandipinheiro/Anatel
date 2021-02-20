@@ -1,4 +1,4 @@
-## Atividades realizadas enquanto estive serviço da Anatel
+## Atividades realizadas enquanto estive a serviço da Anatel
 
 ### Importante
 
